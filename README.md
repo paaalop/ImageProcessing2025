@@ -3,5 +3,5 @@
 
 https://youtu.be/Wc1iQLutcOA?si=B5yk_KO26N22uA-a
 
-[![Video](https://youtu.be/Wc1iQLutcOA?si=B5yk_KO26N22uA-a/maxresdefault.jpg)](https://youtu.be/Wc1iQLutcOA?si=B5yk_KO26N22uA-a)
+[![Video](https://youtu.be/Wc1iQLutcOA?si=B5yk_KO26N22uA-a/0.jpg)](https://youtu.be/Wc1iQLutcOA?si=B5yk_KO26N22uA-a)
 
